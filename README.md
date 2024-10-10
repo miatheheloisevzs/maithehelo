@@ -1,4 +1,3 @@
-Af meo 🙄
 
 hi mores
 só to aqui pq se não fizer fico sem nota, e não da pra ser uma ze ninguem na vida né, até pq achar um velho rico é meio conplicado 🙄
